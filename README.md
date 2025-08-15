@@ -16,4 +16,4 @@ Creo que el aprendizaje nunca termina y disfruto liderar equipos donde la colabo
 - Explorar nuevas herramientas y metodologías de desarrollo.
 
 ## 📫 Contacto
-- LinkedIn: [https://www.linkedin.com/in/jorge-moreno-rosania/](link)
+- LinkedIn: [https://www.linkedin.com/in/jorge-moreno-rosania](https://www.linkedin.com/in/jorge-moreno-rosania)
